@@ -2,4 +2,4 @@
 
 - Juan Dela Cruz — Jack's Ridge
 - Maria Santos — Roxas Boulevard
-- Shawn Miguel - Mintal
+- Shawn Miguel - Gmall
